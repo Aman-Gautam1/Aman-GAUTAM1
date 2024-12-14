@@ -13,7 +13,7 @@
 
 - 📫 How to reach me *gautamaman085@gmail.com*
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1PdvzYw4Asw8Ir2OH82yy9bQFerNZAtcN/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1-dAfoV8GsVQ3zeHBe-YFIN6vn9pMsgXE/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
